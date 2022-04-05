@@ -1,5 +1,5 @@
 - Hello
-- I do AI Studd
+- I do AI Stuff
 - I might do some unity stuff too
 - If you find this page, please tell me if you know me IRL
 - I have no contact information at the current time
